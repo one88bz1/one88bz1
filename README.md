@@ -1,16 +1,21 @@
-## Hi there 👋
+## ONE88
 
-<!--
-**one88bz1/one88bz1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ONE88 - Trang cá cược thể thao, nơi tham gia cá độ bóng đá hàng đầu thế giới. Nhà cái ONE88 trả thưởng minh bạch, công bằng và uy tín. One88 cung cấp tỷ lệ kèo nhanh nhất, chuẩn nhất, để khách hàng có những trải nghiệm tốt nhất.
 
-Here are some ideas to get you started:
+Thông tin liên hệ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0979779888
+
+Address: 98 Đường Đô Đốc Long, Tân Quý, Tân Phú, Thành phố Hồ Chí Minh
+
+Email: one88bz@gmail.com
+
+Hastag: #one88 #nhacaione88 #websiteone88 #linkvaoone88 #trangchuone88
+
+https://one88.bz/
+
+https://www.pinterest.com/one88bz1/
+
+https://www.youtube.com/channel/UCUwl3bbfDW09P2kg94m3WuA
+
+https://gravatar.com/one88bz1
